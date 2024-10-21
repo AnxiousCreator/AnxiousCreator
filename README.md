@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...true this account
 - 😄 Pronouns: pronouns it how you like!
-- ⚡ Fun fact:I'm crazy
+- ⚡ Fun fact:I'm i dont even know
 
 <!---
 AnxiousCreator/AnxiousCreator is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
